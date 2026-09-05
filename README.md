@@ -3,7 +3,7 @@ SOLID ORBIT CAD SERVICES — CLIENT-ACQUISITION WEBSITE V3
 This version is designed to convert visitors into project enquiries.
 
 CONTACT:
-Email: subodh.drawing@gmail.com
+Email: solidorbit6@gmail.com
 WhatsApp: +91 81143 90558
 
 BEFORE OUTREACH:
